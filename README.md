@@ -1,3 +1,4 @@
 # OOPs_lab
 
-[COMPUTERSCIENCEANDENGINEERINGS1-S8.pdf](https://github.com/user-attachments/files/17672224/COMPUTERSCIENCEANDENGINEERINGS1-S8.pdf)
+![WhatsApp Image 2024-11-08 at 09 05 51_154188bf](https://github.com/user-attachments/assets/6e7a1316-b587-4198-8752-6667aeb75b51)
+![WhatsApp Image 2024-11-08 at 09 05 51_7519b59a](https://github.com/user-attachments/assets/3a22e493-e382-4795-a116-f465c76bafd5)
